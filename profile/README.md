@@ -1,4 +1,4 @@
-## CarelessDev is where five people gather up to create *useless* innovation
+## CarelessDev is where six people gather up to create *useless* innovation
 
 ![](https://media0.giphy.com/media/Ju7l5y9osyymQ/200.gif)
 ![](https://media0.giphy.com/media/Ju7l5y9osyymQ/200.gif)
